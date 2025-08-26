@@ -12,4 +12,7 @@
 # 2. Dari Bug Bounty Program Pemerintah Provinsi Bali (15/08/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/raw/main/Sertifikat%20Apresiasi%20BBP%20Bali.jpg">
 
-# 3 ..... SOON
+# 3. Dari Dinas Komunikasi, Informatika, Statistik, dan Persandian Kabupaten Gowa (26/08/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Ilham%20Kurniawan.jpg?raw=true">
+
+# 4. --------SOON--------
