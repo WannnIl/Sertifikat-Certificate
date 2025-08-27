@@ -15,7 +15,10 @@
 # 3. Dari Dinas Komunikasi, Informatika, Statistik, dan Persandian Kabupaten Gowa (26/08/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Ilham%20Kurniawan.jpg?raw=true">
 
-# 4. Dari Dinas Komunikasi, Informatika, dan Statistik Provinsi Riau (27/08/2025)
+# 4. Dari Dinas Komunikasi, Informatika, dan Statistik Provinsi DKI Jakarta (26/08/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/240%20Ilham%20Kurniawan_signed.jpg?raw=true">
+
+# 5. Dari Dinas Komunikasi, Informatika, dan Statistik Provinsi Riau (27/08/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/051_Ilham%20Kurniawan%20_sign.jpg?raw=true">
 
 # 5. -------SOON-------
