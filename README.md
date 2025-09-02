@@ -21,7 +21,10 @@
 # 5. Dari Dinas Komunikasi, Informatika, dan Statistik Provinsi Riau (27/08/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/051_Ilham%20Kurniawan%20_sign.jpg?raw=true">
 
-# 5. -------SOON-------
+# 6. Dari Dinas Komunikasi, Informatika, Statistik, dan Persandian Pemerintah Kota Bekasi (02/09/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Sertifikat%20Apresiasi%20%5B4346%5D%20Ilham_sign.jpg?raw=true">
+
+# 7. -------SOON-------
 
 
 
