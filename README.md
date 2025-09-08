@@ -24,7 +24,10 @@
 # 6. Dari Dinas Komunikasi, Informatika, Statistik, dan Persandian Pemerintah Kota Bekasi (02/09/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Sertifikat%20Apresiasi%20%5B4346%5D%20Ilham_sign.jpg?raw=true">
 
-# 7. -------SOON-------
+# 7. Dari Dinas Komunikasi dan Informatika Pemerintah Kota Pontianak (08/09/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/sertifikat%20apresiasi%20Ilham%20Kurniawan_signed.jpg?raw=true">
+
+# 8. -------SOON-------
 
 
 
