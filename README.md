@@ -27,7 +27,10 @@
 # 7. Dari Dinas Komunikasi dan Informatika Pemerintah Kota Pontianak (08/09/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/sertifikat%20apresiasi%20Ilham%20Kurniawan_signed.jpg?raw=true">
 
-# 8. -------SOON-------
+# 8. Dari Dinas Komunikasi dan Informatika Pemerintah Kota Makassar (15/09/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/SERTIFIKAT-APRESIASI-BUG-HUNTER-Ilham.jpg?raw=true">
+
+# 9. -------SOON-------
 
 
 
