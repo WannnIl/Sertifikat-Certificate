@@ -30,7 +30,10 @@
 # 8. Dari Dinas Komunikasi dan Informatika Pemerintah Kota Makassar (15/09/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/SERTIFIKAT-APRESIASI-BUG-HUNTER-Ilham.jpg?raw=true">
 
-# 9. -------SOON-------
+# 9. Dari Kementrian Energi dan Sumber Daya Mineral Republik Indonesia (18/09/2025)
+<img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Sertifikat%20ESDM-CSIRT%20an.%20Ilham%20Kurniawan.png?raw=true">
+
+# 10. -------SOON-------
 
 
 
