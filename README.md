@@ -33,7 +33,7 @@
 # 9. Dari Kementrian Energi dan Sumber Daya Mineral Republik Indonesia (18/09/2025)
 <img src="https://github.com/WannnIl/Sertifikat-Certificate/blob/main/Sertifikat%20ESDM-CSIRT%20an.%20Ilham%20Kurniawan.png?raw=true">
 
-# 10. -------SOON-------
+# 10. Dari Sekretaris Jenderal Komisi Yudisial Republik Indonesia (19/09/2025)
+<img src="https://raw.githubusercontent.com/WannnIl/Sertifikat-Certificate/refs/heads/main/Ilham%20Kurniawan_sign.jpg">
 
-
-
+# 11. -------SOON-------
