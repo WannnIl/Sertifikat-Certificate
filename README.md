@@ -36,4 +36,7 @@
 # 10. Dari Sekretaris Jenderal Komisi Yudisial Republik Indonesia (19/09/2025)
 <img src="https://raw.githubusercontent.com/WannnIl/Sertifikat-Certificate/refs/heads/main/Ilham%20Kurniawan_sign.jpg">
 
-# 11. -------SOON-------
+# 11. Dari detikcom (22/10/2025)
+<img src="https://raw.githubusercontent.com/WannnIl/Sertifikat-Certificate/refs/heads/main/Ilham%20Kurniawan.png">
+
+# 12. -------SOON-------
