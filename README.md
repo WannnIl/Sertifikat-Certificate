@@ -39,4 +39,7 @@
 # 11. Dari detikcom (22/10/2025)
 <img src="https://raw.githubusercontent.com/WannnIl/Sertifikat-Certificate/refs/heads/main/Ilham%20Kurniawan.png">
 
-# 12. -------SOON-------
+# 12. Dari Dinas Komunikasi dan Informatika Kabupaten Sukoharo (30/10/2025)
+<img src="https://raw.githubusercontent.com/WannnIl/Sertifikat-Certificate/refs/heads/main/ilham%20kurniawan_sign_sukoharjo.jpg">
+
+# 13. -------SOON-------
